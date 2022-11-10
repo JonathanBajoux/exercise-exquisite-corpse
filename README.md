@@ -1,1 +1,2 @@
 # exercise-exquisite-corpse
+L'an 1800 a londre il fesait nuit et calme presque tout le monde dormait dans cette ville la peur regnait un homme rodait dans la ville le tueur a la hache fesait entendre parler lui.      
